@@ -1,1 +1,0 @@
-# TableTenisMGX
